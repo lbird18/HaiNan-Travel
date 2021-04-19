@@ -17,19 +17,19 @@
 
    - 楼顶
 
-     ![image-20210418164216159](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418164216159.png)
+     ![image-20210418164216159](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjc0070j31km0u0e83.jpg)
 
    - 楼顶 75mm
 
-     ![image-20210418164308857](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418164308857.png)
+     ![image-20210418164308857](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjgpudwj31o80u0nky.jpg)
 
    - 楼顶 320mm
 
-     ![image-20210418164325761](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418164325761.png)
+     ![image-20210418164325761](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjlf1kpj31gk0tcnlj.jpg)
 
    - 淇水湾
 
-     ![image-20210418164513180](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418164513180.png)
+     ![image-20210418164513180](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjo1s77j30no13q4qp.jpg)
 
 3. 2:00 留下拍摄 or 回去休息
 
@@ -50,33 +50,33 @@
 
    - 清补凉（新兴路106号）
 
-     ![image-20210418161433353](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418161433353.png)
+     ![image-20210418161433353](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjrvpc1j30u013z4qq.jpg)
 
-     ![image-20210418161437902](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418161437902.png)
+     ![image-20210418161437902](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjw3kvyj30u00mi4qp.jpg)
 
    -  白切文昌鸡、蒜炒地瓜叶、海南鸡油饭（力哥地道海南菜，新兴五巷与新兴路交叉口西北50米）
 
-     ![image-20210418161902698](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418161902698.png)
+     ![image-20210418161902698](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbjytej4j30u0140e81.jpg)
 
-     ![image-20210418161907465](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418161907465.png)
+     ![image-20210418161907465](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbk23c55j30u0140kjl.jpg)
 
    - 糯米糍粑（老爸茶店）
 
-     ![image-20210418161943227](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418161943227.png)
+     ![image-20210418161943227](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbk4fi7zj30u0140b29.jpg)
 
 9. 13:00 休息
 
 10. 16:00 石头公园（未开发、较远）
 
-    ![image-20210418170425792](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418170425792.png)
+    ![image-20210418170425792](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbk7dp0ij30u01331kx.jpg)
 
 11. 17:00 **海边村**or**淇水湾**拍日落、星空（光污染很少）
 
-    ![image-20210418164109262](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418164109262.png)
+    ![image-20210418164109262](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkaeav8j31i10u01kz.jpg)
 
-    ![image-20210418153504253](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418153504253.png)
+    ![image-20210418153504253](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkdj4fpj30u01404qq.jpg)
 
-    ![image-20210418153521941](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210418153521941.png)
+    ![image-20210418153521941](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbki34sej30qv0zte81.jpg)
 
 
 
@@ -84,41 +84,41 @@
 
 1. 淇水湾日出（06:09:49）
 
-   ![img](https://img1.doubanio.com/view/group_topic/l/public/p429010297.webp)
+   ![img](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkluipij30u00gv105.jpg)
 
 2. 8:00 补觉,准备退房
 
 3. 12:00 啊唛五香牛肉馆
 
-   ![image-20210419030625302](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419030625302.png)
+   ![image-20210419030625302](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkop4cmj30u00u0u0x.jpg)
 
 4. 13:30 休息片刻后出发
 
 5. 14:20 抱虎角（停路边）
 
-   ![image-20210419022021784](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419022021784.png)
+   ![image-20210419022021784](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkrexuej30u0140qqn.jpg)
 
-   ![image-20210419022025601](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419022025601.png)
+   ![image-20210419022025601](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbku8yolj30u0140qr8.jpg)
 
 6. 15:30出发，16:10 分到木兰湾（停林梧润霞小卖部）
 
    - 垃圾较多，注意卫生
 
-   ![image-20210419022629599](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419022629599.png)		
+   ![image-20210419022629599](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkx2vv6j30o20w2wps.jpg)		
 
-   ![image-20210419022617373](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419022617373.png)
+   ![image-20210419022617373](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl0uilkj30ru114x3y.jpg)
 
    - 当日日落时间（19:01:48）
 
-   ![image-20210419022621266](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419022621266.png)
+   ![image-20210419022621266](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl54p7vj30rs1114qp.jpg)
 
 7. 19:00 出发到海口禧鸿酒店，约八点半入住
 
-   ![image-20210419032311436](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419032311436.png)
+   ![image-20210419032311436](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl7smhtj30n01dshdt.jpg)
 
 8. 21:00 海大南门小吃街
 
-   ![image-20210419032509702](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419032509702.png)
+   ![image-20210419032509702](https://tva1.sinaimg.cn/large/008eGmZEgy1gppblaqxwrj30u013znpe.jpg)
 
 
 
@@ -126,7 +126,7 @@
 
 1. 12:00 转移到喜来登酒店
 
-   ![image-20210419033728670](/Users/litaixuan/Library/Application Support/typora-user-images/image-20210419033728670.png)
+   ![image-20210419033728670](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbldg2hvj30j60pe4qp.jpg)
 
 2. 下午温泉
 
