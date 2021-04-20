@@ -122,7 +122,7 @@
 
    ![image-20210420012612780](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuyyrilj30u00mgwid.jpg)
 
-   ![image-20210420012400623](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuwfjk0j30u01410xm.jpg)
+   ![image-20210420012400623](https://tva1.sinaimg.cn/large/008eGmZEgy1gpq6dyfiiuj30u0141wjd.jpg)
 
 9. 19:00 听海音乐餐吧（不去外滩音乐餐吧，做作摆拍的人太多）
 
