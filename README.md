@@ -128,9 +128,7 @@
 
    ![image-20210420014136679](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuv6hh7j30n01ds7wi.jpg)
 
-10. 21:00 海大南门小吃街
-
-   ![image-20210419032509702](https://tva1.sinaimg.cn/large/008eGmZEgy1gppblaqxwrj30u013znpe.jpg)
+10. 21:00 海大南门小吃街![image-20210419032509702](https://tva1.sinaimg.cn/large/008eGmZEgy1gppblaqxwrj30u013znpe.jpg)
 
 
 
@@ -147,4 +145,7 @@
 
 
 
-预计花费（除路费）：450文昌公寓+650租车和邮费+800喜来登酒店、自助餐和温泉+132禧鸿酒店+2000元吃喝=4000元
+## 花费
+
+预计花费（除路费）：450文昌公寓+650租车和邮费+500左右海口酒店+150左右机场酒店+2000元吃喝
+
