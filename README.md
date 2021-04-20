@@ -5,7 +5,7 @@
 3. 19:32 到宝安机场
 4. 21:00 宝安机场起飞
 5. 22:20 到海南美兰机场
-6. 23:00 T1 航站楼提车
+6. 23:00 T1 航站楼提车（红旗H5白色）
 
 
 
@@ -33,9 +33,9 @@
 
 3. 2:00 留下拍摄 or 回去休息
 
-4. 7:00 早餐
+4. 6:00 早餐
 
-5. 8:00 到淇水湾抢机位
+5. 7:00 到淇水湾抢机位
 
 6. 9:00 戒严封路
 
@@ -88,19 +88,19 @@
 
 2. 8:00 补觉,准备退房
 
-3. 12:00 啊唛五香牛肉馆
+3. 10:00 啊唛五香牛肉馆
 
    ![image-20210419030625302](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkop4cmj30u00u0u0x.jpg)
 
-4. 13:30 休息片刻后出发
+4. 11:00 出发
 
-5. 14:20 抱虎角（停路边）
+5. 12:00 抱虎角（停路边）
 
    ![image-20210419022021784](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbkrexuej30u0140qqn.jpg)
 
    ![image-20210419022025601](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbku8yolj30u0140qr8.jpg)
 
-6. 15:30出发，16:10 分到木兰湾（停林梧润霞小卖部）
+6. 13:30出发，14:10 分到木兰湾（停林梧润霞小卖部）
 
    - 垃圾较多，注意卫生
 
@@ -108,15 +108,27 @@
 
    ![image-20210419022617373](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl0uilkj30ru114x3y.jpg)
 
-   - 当日日落时间（19:01:48）
+7. 15:00 出发到海口兴城悦玺海景酒店，约四点半入住
 
-   ![image-20210419022621266](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl54p7vj30rs1114qp.jpg)
+   ![image-20210420012048890](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkszr9gyj30n01ds7np.jpg)
 
-7. 19:00 出发到海口禧鸿酒店，约八点半入住
+   ![image-20210420012023699](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkv4ibigj30n01dstgn.jpg)
 
-   ![image-20210419032311436](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbl7smhtj30n01dshdt.jpg)
+8. 17:00出发到世纪大桥
 
-8. 21:00 海大南门小吃街
+   ![image-20210420012532197](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkv24x0nj30u0140jvg.jpg)
+
+   ![image-20210420012549020](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkv0pjgcj30u01400wq.jpg)
+
+   ![image-20210420012612780](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuyyrilj30u00mgwid.jpg)
+
+   ![image-20210420012400623](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuwfjk0j30u01410xm.jpg)
+
+9. 19:00 听海音乐餐吧（不去外滩音乐餐吧，做作摆拍的人太多）
+
+   ![image-20210420014136679](https://tva1.sinaimg.cn/large/008eGmZEgy1gppkuv6hh7j30n01ds7wi.jpg)
+
+10. 21:00 海大南门小吃街
 
    ![image-20210419032509702](https://tva1.sinaimg.cn/large/008eGmZEgy1gppblaqxwrj30u013znpe.jpg)
 
@@ -124,15 +136,14 @@
 
 ## 5月1日 *海口,周六,多云*
 
-1. 12:00 转移到喜来登酒店
-
-   ![image-20210419033728670](https://tva1.sinaimg.cn/large/008eGmZEgy1gppbldg2hvj30j60pe4qp.jpg)
-
-2. 下午温泉
-
-3. 晚餐：海鲜自助+黑椒牛仔骨拼大皇虾（多半是唬人的）
-
-4. 找个时间还车
+1. 6:00 从海甸岛到滨海大道骑车，海甸岛的老爸茶坊
+2. 10:00 早餐：宋记海南粉传奇老店、亚妹正宗海南粉店、广场老妈肠粉店
+3. 12:00 骑楼老街
+4. 13:00 万绿园适合拍照消食
+5. 15:50 沙滩
+6. 17:20 转场到机场附近
+7. 18:00 拍飞机
+8. 找个时间还车
 
 
 
